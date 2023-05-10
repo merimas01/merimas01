@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **merima.sarancic01@gmail.com**
 
+- ⚡ Fun fact **I can draw portraits :D**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/merima-šarančić-ab1703275" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="merima-šarančić-ab1703275" height="30" width="40" /></a>
