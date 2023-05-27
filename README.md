@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **merima.sarancic01@gmail.com**
 
-- ⚡ Fun fact **I can draw portraits :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
